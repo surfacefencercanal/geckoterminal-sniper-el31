@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with instant Sniper for geckoterminal sniper bot | buy-pressure-analysis & trailing-stop, the #1 geckoterminal sniper bot. Includes buy-pressure-analysis and
 
 
 
